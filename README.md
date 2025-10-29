@@ -73,7 +73,7 @@ Recommended Songs:
 2. Jolly O Gymkhana — Vijay
 3. MAYA — Karthik & Sujatha
 
-https://github.com/user-attachments/assets/02a71b41-e9f3-48cf-9523-d0065455c202
+!<img width="523" height="709" alt="Screenshot 2025-10-29 114539" src="https://github.com/user-attachments/assets/f87ec7aa-83b1-4a29-9434-1a1682a52244" />
 
 
 
